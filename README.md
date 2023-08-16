@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bolo4555
+- 👀 I’m interested in woman 
+- 🌱 I’m currently learning to program
+- 💞️ I’m looking to collaborate on the world's technology
+- 📫 How to reach me, you can't my woman don't let me 
